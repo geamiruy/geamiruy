@@ -1,4 +1,4 @@
-## 👋 Hai, saya @geamiruy!
+## 👋 Hai, saya @zahra fadila tahitya!
 
 Saya seorang Saya seorang pelajar di **SMK Telkom Malang** yang antusias dengan teknologi dan selalu bersemangat mempelajari hal-hal baru. Dalam perjalanan saya, saya telah mengeksplorasi berbagai bidang pengembangan teknologi dan senang berbagi serta bekerja sama dengan guru dan teman teman saya.
 
